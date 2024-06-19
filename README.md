@@ -1,0 +1,4 @@
+- 👋 Hi, I’m alex
+- 🌱 I’m currently learning ???
+- 😄 Pronouns: she/they
+- ⚡ Fun fact: sopho
